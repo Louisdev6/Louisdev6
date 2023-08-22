@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Louisdev6
+- 👋 Hi, I’m Louis
 - 👀 I’m interested in reading, playing ping-pong, movie
 - 🌱 I’m currently learning marketing
 - 💞️ I’m looking to collaborate on ...
